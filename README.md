@@ -1,0 +1,1 @@
+# MSI-V809-3250R-graphics-card-GeForce-GTX-1650-Gaming-X-4GB-GDDR5
